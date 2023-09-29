@@ -1,1 +1,2 @@
-hello from article 1
+# Relationships
+I spent a lot more time with my family over the years. Considering the fact that my parents are getting older I realized that time spent with them is important to me. My niece and nephew have grown so much as well and I love seeing them grow into their personalities. I also got my G license and can finally drive my friends and family around as well as see old friends more often since I don't have to commute anymore!
