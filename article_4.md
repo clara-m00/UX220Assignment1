@@ -1,2 +1,4 @@
 # Hobbies
+<img src="https://as2.ftcdn.net/v2/jpg/04/34/51/59/1000_F_434515980_fz6zTU5cVJXRA7p242P0rLVkegkFP6Tv.jpg" height=300>
+
 I took up some of my old hobbies that I used to do many years ago. One of the hobbies I;m most proud of is that I started drawing again. I used to be so creative but somewhere down the line I feel as though I lost that part of me so it’s nice to come back to old hobbies. I started reading a lot more, and have a huge “to-read” list. Additionally, I started playing the guitar again and became better at it than I used to! I'm still working on learning piano but someday I’ll get there.

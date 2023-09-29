@@ -1,2 +1,4 @@
 # Relationships
+<img src="https://img.freepik.com/premium-vector/video-call-group-chat-family-friends-computer-cartoon-illustration-girl-chatting_316839-1372.jpg?w=2000" height=300>
+
 I spent a lot more time with my family over the years. Considering the fact that my parents are getting older I realized that time spent with them is important to me. My niece and nephew have grown so much as well and I love seeing them grow into their personalities. I also got my G license and can finally drive my friends and family around as well as see old friends more often since I don't have to commute anymore!
